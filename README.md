@@ -1,5 +1,4 @@
 # inSourabh.github.io
-My personal blog
 Zamaane ke bojh ke tale\ 
 aaj tak jo baat dabti aayi thi\
 Aaj ja ke zabaan pe\
